@@ -19,5 +19,7 @@ Với kho tàng câu đố phong phú, hấp dẫn, đa dạng, phù hợp với
 ![alt tag](https://is1-ssl.mzstatic.com/image/thumb/Purple62/v4/62/9d/2c/629d2cc4-fe7c-8b6e-e281-999dd33b0e0c/pr_source.jpg/300x300bb.jpg?1477407897729)
 ![alt tag](https://is1-ssl.mzstatic.com/image/thumb/Purple71/v4/f7/bf/65/f7bf659e-3089-475f-a46a-77b06eca22d6/pr_source.jpg/300x300bb.jpg?1477407897731)
 
+Link:Chơi thử game tại: 
+https://itunes.apple.com/us/app/do-vui-hai-nao/id1148605504?ls=1&mt=8
 
 
